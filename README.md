@@ -1,0 +1,1 @@
+# gtatorcidas-politica-de-privacidade
